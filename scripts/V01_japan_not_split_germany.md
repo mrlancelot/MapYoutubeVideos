@@ -7,7 +7,17 @@
 
 ## Narration
 
-Germany was split in half. Japan wasn't. Why? After World War 2, the Allies divided Germany between America, Britain, France, and the Soviet Union. Stalin wanted the same for Japan. He demanded Hokkaido. The northern island. Truman said no. America had dropped the bombs. America had won the Pacific. America would control Japan alone. Stalin backed down. One decision. If Truman had said yes, there would be a North Japan and South Japan today. Just like Korea. The Cold War almost created another divided nation.
+Why was Germany split after World War II—but Japan wasn’t?
+
+After World War II, the Allies divided Germany between the United States, Britain, France, and the Soviet Union. What began as occupation zones quickly became Cold War borders.
+
+Stalin wanted the same for Japan.
+
+He demanded Hokkaido, the northern island, and pushed to divide Japan just like Germany. But one man said no, General Douglas MacArthur. He warned that splitting Japan would create chaos and hand communism a foothold in Asia.
+
+America would occupy Japan alone.
+
+Stalin was furious but backed down.
 
 ---
 
